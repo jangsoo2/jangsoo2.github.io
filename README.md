@@ -1,1 +1,0 @@
-# jangsoo2.github.io
